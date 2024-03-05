@@ -1,6 +1,6 @@
 # XIXI机场官网地址
 
-最新地址：[xixi997.xyz](https://xixibb.xyz/auth/register?code=rbs4)
+最新地址：[xixi997.xyz](https://xx964.xyz/auth/register?code=RI0d)
 
 ## 简介
 
@@ -10,7 +10,7 @@ XIXI机场，某大型机场的分场，注册送100G流量，免费节点多，
 
 ## XIXI机场优惠码
 
-618活动。年费79折，优惠码：XN2023
+年费85折优惠，优惠码：q85
 
 ## 特色
 
