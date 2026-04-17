@@ -1,6 +1,6 @@
 # XIXI机场官网地址
 
-最新地址：[xixi997.xyz](https://xixi77.net/auth/register?code=RI0d)
+最新地址：[xixi997.xyz](https://xixifind.net/auth/register?code=RI0d)
 
 ## 简介
 
